@@ -8,9 +8,9 @@ Kaneki Ken
 &&
 https://discord.gg/invite/NjUJajwKW7
 --
-guild3.jpg
+guild3.gif
 --
-Deepins02
+Desires
 &&
 https://discord.gg/CaKr8vAz48
 --
